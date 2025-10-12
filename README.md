@@ -1,3 +1,23 @@
+# MIKOTO MIKOTO MIKOTO MIKOTO MIKOTO MIKOTO!!!!!!! (special gift)
+
+
+
+<img width="689" height="559" alt="Untitled164 2025 10 08-07 59_20251012003934" src="https://github.com/user-attachments/assets/875384dc-9108-4338-9405-023637469092" />
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 <img width="1290" height="2796" alt="IMG_0669" src="https://github.com/user-attachments/assets/a0b26622-2230-4ee4-bdc7-2bc4c2524f72"/>
 
 ![IMG_0684](https://github.com/user-attachments/assets/2a6543c5-0d9d-407a-b6f5-15ebdba4a60a)
